@@ -1,0 +1,41 @@
+
+# pinksale-Drainer
+
+💖New Drainer Pinksale Drainer⚪️
+
+🔥 Steals All ETH and CRYPTO 🔶🔷📶
+🔥 Steals All ETH, BNB , FTM,Matic .🔶🔷📶
+🔥Fully Customizeable
+🔥 Get any design you want
+🔥 Best Wallet Drainer On The Market
+🔥 Supports 20+ Types Of Wallets 🦊🛡🔒🪙💰💰💰
+
+✅Supported Networks:
+
+
+💰Ethereum (ETH)
+💰Binance Smart Chain (BSC), 
+💰Polygon (MATIC),
+👨‍💻Fantom (FTM),
+👨‍💻Avalanche (AVAX),
+👨‍💻Optimism (OP),
+👨‍💻Arbitrum (ARB),
+👨‍💻Gnosis (GNO),
+👨‍💻Moonriver (MOVR),
+👨‍💻Celo (CELO),
+✅Aurora (AURORA)
+
+⭐️Instant Delivery
+⭐️Full Source Code
+✅Easy Setup
+
+
+Dm For Buy: @cryptocoder9 🔥
+
+🌐  https://cryptocoder.shop/item/new-drainer-pinksale-drainer ✔️
+
+
+proof (https://t.me/cryptocoderproof) ✅
+
+
+       
