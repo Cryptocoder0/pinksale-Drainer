@@ -38,5 +38,5 @@ Dm For Buy: @cryptocoder9 🔥
 proof (https://t.me/cryptocoderproof) ✅
 
 
-https://i.ibb.co/sWFSsTK/sat-aug-12-2023-924-pm15835.png
+<a href="https://ibb.co/qJRGmHN"><img src="https://i.ibb.co/qJRGmHN/sat-aug-12-2023-924-pm15835.png" alt="sat-aug-12-2023-924-pm15835" border="0"></a>
        
